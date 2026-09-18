@@ -1,4 +1,4 @@
-<img width="735" height="1040" alt="F1 Poster" src="https://github.com/user-attachments/assets/3410f148-d39c-4bcf-8fbd-f64abb268f99" />
+<img width="736" height="1040" alt="Liam Lawson (2)" src="https://github.com/user-attachments/assets/8c17fe05-56c3-4d0b-98a3-ce5e720f3bc3" />
 
 
 
